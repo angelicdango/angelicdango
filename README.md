@@ -5,7 +5,7 @@
 
 > __i LOVE c+h__ !!! i might approach you if i see c+h or cudcomf in your name/git/etc !! *if i walk away, 99% of the time it's never your fault it's either i want to go to someone or check something :3*
 
-> if we don’t know each other, __i will move away from you if you do the kiss or sneeze emote on me__ (NUZZLES ARE OK AND I NUZZLE A LOT TOO WHEN C+H unless you do not want me to!!!)
+> in general, NUZZLES ARE OK AND I NUZZLE A LOT TOO WHEN C+H unless you do not want me to!!! i don’t reciprocate kiss emotes
 
 > __if we are friends__, i will allow you to kiss emote but i will *only* reciprocate if: roleplay action, love the cosplay/oc, done in a strictly platonic manner, or if we are close
 
