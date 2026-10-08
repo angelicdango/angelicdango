@@ -17,6 +17,8 @@
 
 > __prone to sudden disconnect__
 
+> in case anyone is worried about this __i will never push for a ship roleplay just because i love/yume the character you have equipped.__ i am very aware that the character ≠ the cosplayer/fictkin/fictive. i do not ever want to give someone the impression that i am expecting something from them, i do not expect anything from you other than basic respect and i’m sure you expect the same from me! 
+
 
  𐔌   ✦   ︵ .  ︵︵ **fandoms *!***
 
